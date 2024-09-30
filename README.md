@@ -14,4 +14,4 @@
 11. 2nd summer (We are here)
 12. Actual Fall
 
-Based off of thie meme [Seasons in California : bayarea](https://old.reddit.com/r/bayarea/comments/f52yyf/seasons_in_california/) 
+Based off of this meme [Seasons in California : bayarea](https://old.reddit.com/r/bayarea/comments/f52yyf/seasons_in_california/) 
